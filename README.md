@@ -6,7 +6,7 @@ Brain tumor occurs owing to the uncontrolled and rapid growth of cells. If not t
 
 ### Workflow  
 
-https://keep.google.com/u/0/media/v2/1klTBQZnZeCFgtZNVR93UoUD9e9GURweVn4Uq6feYuGSI7K8XXaUestzdUaJjcoE/18gW-h89AqV3orMnENejTkU7Yj0IwJemoL8ab-aPnMLy22yBbV3HhpurS6zboue4?accept=image%2Fgif%2Cimage%2Fjpeg%2Cimage%2Fjpg%2Cimage%2Fpng%2Cimage%2Fwebp%2Caudio%2Faac&sz=980![image](https://user-images.githubusercontent.com/57098615/212073730-a5d4bc92-f306-4b92-98d3-01a9b07aa4e5.png)
+![unnamed](https://user-images.githubusercontent.com/57098615/212074607-9d4558ff-3f23-41ab-b94d-aacbdd9c8f10.png)
 
 ### Evaluation
 
